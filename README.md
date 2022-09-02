@@ -4,6 +4,6 @@ To demonstrate this,  we will discuss an evaluation made by 11 clinicians, who w
 
 Link to the article on medium : https://tinyurl.com/ArticleMedium
 
-Link to the published paper : https://www.injuryjournal.com/article/S0020-1383(22)00286-8/fulltext
+Link to the published paper : https://tinyurl.com/PublishedPaperInjury
 
 Lien vers la vidéo Youtube de l'atelier : https://youtu.be/lYVczUh7Vi8
